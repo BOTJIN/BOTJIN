@@ -1,5 +1,1 @@
--👋 hi Im @BOTJIN
--❤️ Im 14 yearold
--admin let me in to manage everyone😎
--please don't spam me🥺 
--help command for more 😻
+
